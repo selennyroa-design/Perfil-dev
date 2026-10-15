@@ -1,7 +1,6 @@
 # Selenny roa
 
-
-
+Estudiante de Ciberseguridad 
 
 # lengauje que conozco 
 
